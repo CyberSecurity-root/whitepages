@@ -3,7 +3,7 @@
 # list of all whitepages 🔭🌐🛠️
 
 ![________178495_orig](https://github.com/user-attachments/assets/f1a87d27-f5f7-4697-8200-a37788b8066e)
-
+.
 
 Telecom World Zone +6
 
